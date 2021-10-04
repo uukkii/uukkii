@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @uukkii
+- 👀 I’m interested in Java, Music and Anime
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on smth
+- 📫 I'm free to contact at i.am.newbie@hotmail.com
