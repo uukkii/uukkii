@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uukkii
-- 👀 I’m interested in Java, Music and Anime
+- 👀 I’m interested in Java, Japan and Researching
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on smth
 - 📫 I'm free to contact at turitsyn.d@hotmail.com
